@@ -1,16 +1,16 @@
-# Replace with recipe name
+# Eggs and Veggies
 
-## Servings: 
+## Servings: 4
 
-## Time to prepare: 
+## Time to prepare: 30 minutes
 
-## Ingredients:
-
-
-## Equipment needed:
+## Ingredients: 6 Eggs, half onion, 1 tomato, butter
 
 
-## Steps for preparation:
+## Equipment needed: frying pan, stove, spatula
+
+
+## Steps for preparation: crack eggs, cut veggies, butter pan, put in veggies, wait 5 minutes, put in eggs, eat
 
 
 
