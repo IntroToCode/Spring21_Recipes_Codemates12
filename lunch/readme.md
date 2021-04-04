@@ -33,6 +33,11 @@ Suggestions for additional chicken salad mix-ins:
 
 Suggestions for sandwich toppings:
 
+- Tomatoes
+- Jalapeños
+- Pickles
+- Fried onions
+
 Suggestions for sides to serve with sandwiches:
 
 Suggestions for beverages:
