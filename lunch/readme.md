@@ -29,7 +29,7 @@
 
 
 ### Notes:
-Suggestions for additional chicken salad mix-ins:
+Suggestions for additional chicken salad mix-ins:  For alterations to the recipe, try adding cranberries, halved or quartered purple grapes, or shaved almonds. Also salt and pepper to your hearts content.
 
 Suggestions for sandwich toppings:
 
