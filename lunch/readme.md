@@ -37,6 +37,7 @@ Suggestions for sandwich toppings:
 - Jalapeños
 - Pickles
 - Fried onions
+- Olive
 
 Suggestions for sides to serve with sandwiches: 
 
@@ -49,5 +50,6 @@ Suggestions for beverages:
 - Iced team
 - Soda
 - White wine
+- Orange Juice
 
 ### Codemates #
