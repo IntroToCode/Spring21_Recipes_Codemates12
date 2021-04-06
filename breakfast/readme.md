@@ -15,6 +15,7 @@
 - 3 tablespoons of butter, melted
 - Ground coffee
 - 16 Oranges
+- Blueberry and Stawberry
 
 
 ## Equipment needed:
