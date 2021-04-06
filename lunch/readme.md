@@ -10,7 +10,7 @@
 - 1 cup mayonnaise
 - 2 tbsp dijon mustard
 - 2 tbsp lemon juice
-- salt & pepper to taste
+- Salt & pepper to taste
 - 1 loaf sliced bread
 
 ## Equipment needed:
@@ -38,9 +38,16 @@ Suggestions for sandwich toppings:
 - Pickles
 - Fried onions
 
-Suggestions for sides to serve with sandwiches:
+Suggestions for sides to serve with sandwiches: 
+
+- Kettle cooked chips
+- Side salad or cole slaw
+- Pickles
 
 Suggestions for beverages:
 
+- Iced team
+- Soda
+- White wine
 
 ### Codemates #
