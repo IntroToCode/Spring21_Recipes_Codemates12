@@ -6,26 +6,26 @@
 
 ## Ingredients:
 
-- 1.5 cups of all purpose flour
+- 1.5 cups all purpose flour
 - 3.5 teaspoons baking powder
 - 1 teaspoon salt
 - 1 tablespoon white sugar
-- 1.25 cups of milk
+- 1.25 cups milk
 - 1 egg
-- 3 tablespoons of butter, melted
+- 3 tablespoons butter, melted
+- 16 oranges
 - Ground coffee
-- 16 Oranges
-- Blueberry and Stawberry
+- Blueberry and strawberry
 
 
 ## Equipment needed:
 
-- large bowl
-- griffle or frying pan
-- sieve
-- mixing spoon
-- juicer
-- coffee maker
+- Large bowl
+- Gridle or frying pan
+- Sieve
+- Mixing spoon
+- Juicer
+- Coffee maker
 
 
 ## Steps for preparation:
